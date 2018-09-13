@@ -1,4 +1,4 @@
-# Emoji-keyboard-Nougat Privacy Policy
+# Emoji-keyboard-Pie Privacy Policy
 
 Your privacy is important to us and we are committed to protecting your privacy. 
 Please take a moment to familiarize yourself with our privacy practices.
